@@ -1,3 +1,2 @@
 hi..
-
-![image](https://github.com/pawsuri/PAWSURI/assets/125628920/c55d4017-59e8-4a76-bb22-0319b41855ac)
+[https://i.pinimg.com/564x/1e/47/94/1e4794b876e4358ff931cec07bac5e3f.jpg](https://i.pinimg.com/564x/1e/47/94/1e4794b876e4358ff931cec07bac5e3f.jpg)
