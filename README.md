@@ -4,4 +4,4 @@
 
 
 
-![death note](https://i8.glitter-graphics.org/pub/181/181958z6aob5a3xp.gif)  I'm a Slave 4 U - Britney Spears
+![death note](https://i8.glitter-graphics.org/pub/181/181958z6aob5a3xp.gif)  Divine - KoRn
