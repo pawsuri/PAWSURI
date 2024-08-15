@@ -4,4 +4,4 @@
 
 
 
-![death note](https://i8.glitter-graphics.org/pub/181/181958z6aob5a3xp.gif)  Divine - KoRn
+![death note](https://i8.glitter-graphics.org/pub/181/181958z6aob5a3xp.gif)  Trash - KoRn
